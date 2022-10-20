@@ -1,2 +1,2 @@
-# shivaprashanthkas.ina
+# shivaprashanth.xyz
 My Personal website
